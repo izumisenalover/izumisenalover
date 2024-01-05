@@ -9,7 +9,7 @@ married to @hifumiizanamilover ![d51znq1-df165caf-6b01-4c4f-9841-bb371578b1d5](h
 
 | interests    | meow |
 | ----------- | ----------- | 
-|i like enstars d4dj bandori bsd and more feel free to talk about any of that with me!!!  | feel free to sit next to me/talk to me whatev! usually afk so whisper me if you need something!! izumi sena wife and izuleo fan before human :3 |
+|i like enstars bandori d4dj bsd and more feel free to talk about any of that with me!!!  | feel free to sit next to me/talk to me whatev! usually afk so whisper me if you need something!! izumi sena wife and izuleo fan before human :3 |
 
 
 ![d9sd62l-e7e10d36-925e-413c-b952-42a16a857345](https://github.com/izumisenalover/izumisenalover/assets/129478709/6021bfdc-4c94-4b76-95aa-fec223c819b1)
