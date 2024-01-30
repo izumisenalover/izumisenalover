@@ -15,7 +15,7 @@ married to @hifumiizanamilover ![d51znq1-df165caf-6b01-4c4f-9841-bb371578b1d5](h
 
 | interests    | meow |
 | ----------- | ----------- | 
-|i like enstars bandori d4dj bsd and more feel free to talk about any of that with me!!!  | feel free to sit next to me/talk to me whatev! usually afk so whisper me if you need something!! izumi sena wife and izuleo fan before human :3 |
+|i like enstars bandori milgram d4dj bsd and more feel free to talk about any of that with me!!!  | i am completly okay with sitting with me/talking to me ^_^ BUT i sit afk alot so if its not a whisper and i dont see im very sorry (>﹏<) !! |
 
 
 ![d9sd62l-e7e10d36-925e-413c-b952-42a16a857345](https://github.com/izumisenalover/izumisenalover/assets/129478709/6021bfdc-4c94-4b76-95aa-fec223c819b1)
@@ -23,7 +23,10 @@ married to @hifumiizanamilover ![d51znq1-df165caf-6b01-4c4f-9841-bb371578b1d5](h
 ![d9sd2kw-47693ded-2198-4c67-8d11-37efcf79010a](https://github.com/izumisenalover/izumisenalover/assets/129478709/8802c263-1bae-4367-b2da-39177674ccf8)![d9sd62l-e7e10d36-925e-413c-b952-42a16a857345](https://github.com/izumisenalover/izumisenalover/assets/129478709/6021bfdc-4c94-4b76-95aa-fec223c819b1)
 ![d9sd2kw-47693ded-2198-4c67-8d11-37efcf79010a](https://github.com/izumisenalover/izumisenalover/assets/129478709/8802c263-1bae-4367-b2da-39177674ccf8)
 
-imnot a homestuck anymore i just like nepeta and the stamp please ![dbpdit2-dfa05e50-312f-40c2-b609-2c8b7d9557bc](https://github.com/izumisenalover/izumisenalover/assets/129478709/c7771339-a4aa-451a-9e66-744cdf69d94d)
+ILOVE IZUMISENA MORE THAN ANYTHING IN THE WORLD LOVE OFMYLIFE thank you for reading i have a rentry btw ⸜(*ˊᗜˋ*)⸝
+![dbpdit2-dfa05e50-312f-40c2-b609-2c8b7d9557bc](https://github.com/izumisenalover/izumisenalover/assets/129478709/0bef4345-d283-430f-8b01-945becd9f137)
+
+
 
 pfp by pixiv 1599876 ![Untitled](https://github.com/izumisenalover/izumisenalover/assets/129478709/78fa63af-97ac-4108-94e4-62c036e1d431)
 
