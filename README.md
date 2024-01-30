@@ -15,7 +15,8 @@ married to @hifumiizanamilover ![d51znq1-df165caf-6b01-4c4f-9841-bb371578b1d5](h
 
 | interests    | meow |
 | ----------- | ----------- | 
-|i like enstars bandori milgram d4dj bsd and more feel free to talk about any of that with me!!!  | i am completly okay with sitting with me/talking to me ^_^ BUT i sit afk alot so if you really wanna tell me something please whisper ill get back to you asap (>﹏<) !! |
+|i like enstars bandori milgram d4dj bsd and more feel free to talk about any of that with me!!!  | i am completly okay with sitting with me/talking to me ^_^ BUT i sit afk alot so if you really wanna tell me something please whisper ill get back to you asap 
+(>﹏<) !! |
 
 
 ![d9sd62l-e7e10d36-925e-413c-b952-42a16a857345](https://github.com/izumisenalover/izumisenalover/assets/129478709/6021bfdc-4c94-4b76-95aa-fec223c819b1)
