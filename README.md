@@ -28,5 +28,7 @@ ILOVE IZUMISENA MORE THAN ANYTHING IN THE WORLD LOVE OFMYLIFE thank you for read
 
 
 
-pfp by pixiv 1599876 ![Untitled](https://github.com/izumisenalover/izumisenalover/assets/129478709/78fa63af-97ac-4108-94e4-62c036e1d431)
+pfp by pixiv 1599876![Untitled](https://github.com/izumisenalover/izumisenalover/assets/129478709/78fa63af-97ac-4108-94e4-62c036e1d431)
+
+![Image_(3)_(1)](https://github.com/izumisenalover/izumisenalover/assets/129478709/08d7b7f0-17f7-48c7-be92-60e3a9b05dd0)
 
