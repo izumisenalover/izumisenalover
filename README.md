@@ -30,5 +30,5 @@ ILOVE IZUMISENA MORE THAN ANYTHING IN THE WORLD LOVE OFMYLIFE thank you for read
 
 pfp by pixiv 1599876![Untitled](https://github.com/izumisenalover/izumisenalover/assets/129478709/78fa63af-97ac-4108-94e4-62c036e1d431)
 
-![Image_(3)_(1)](https://github.com/izumisenalover/izumisenalover/assets/129478709/08d7b7f0-17f7-48c7-be92-60e3a9b05dd0)
+![P4AU_Illustration_Halloween_2016_of_Kanji,_Naoto_and_Rise_by_Rokuro_Saito](https://github.com/izumisenalover/izumisenalover/assets/129478709/f928403a-9897-4bf3-b52f-5ef3e725be36)
 
