@@ -23,8 +23,7 @@ married to @hifumiizanamilover ![d51znq1-df165caf-6b01-4c4f-9841-bb371578b1d5](h
 ![d9sd2kw-47693ded-2198-4c67-8d11-37efcf79010a](https://github.com/izumisenalover/izumisenalover/assets/129478709/8802c263-1bae-4367-b2da-39177674ccf8)![d9sd62l-e7e10d36-925e-413c-b952-42a16a857345](https://github.com/izumisenalover/izumisenalover/assets/129478709/6021bfdc-4c94-4b76-95aa-fec223c819b1)
 ![d9sd2kw-47693ded-2198-4c67-8d11-37efcf79010a](https://github.com/izumisenalover/izumisenalover/assets/129478709/8802c263-1bae-4367-b2da-39177674ccf8)
 
-ILOVE IZUMISENA MORE THAN ANYTHING IN THE WORLD LOVE OFMYLIFE thank you for reading !! (>ω<)
-![dbpdit2-dfa05e50-312f-40c2-b609-2c8b7d9557bc](https://github.com/izumisenalover/izumisenalover/assets/129478709/0bef4345-d283-430f-8b01-945becd9f137)
+dont judgemy carrd and github to hardihavent updated it inawhile and i dont feelike it lololol
 
 
 
