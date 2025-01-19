@@ -13,7 +13,7 @@
 
 <p align="center">i like enstars d4dj idv persona 3/4/5 homestuck(sorry) and more feel free to talk about any of that with me i dont bite i promise!!! !!!
 
-<p align="center">i hide very freely sorry if im sitting on someone.. i am completly okay with sitting with me/talking to me ^_^ BUT please understand i sit afk alot so if you really wanna tell me something please whisper ill get back to you asap !!
+<p align="center">i hide very freely sorry if im sitting on someone.. i am completly okay with sitting with me/talking to me ^_^ BUT please understand i sit afk alot so if you really wanna tell me something please whisper ill get back to you asap !! my atabook might hurt some peoples eye be  careful its not like bright colors but its alot
 
   ![d9sd62l-e7e10d36-925e-413c-b952-42a16a857345](https://github.com/izumisenalover/izumisenalover/assets/129478709/6021bfdc-4c94-4b76-95aa-fec223c819b1)
 ![d9sd2kw-47693ded-2198-4c67-8d11-37efcf79010a](https://github.com/izumisenalover/izumisenalover/assets/129478709/8802c263-1bae-4367-b2da-39177674ccf8)![d9sd62l-e7e10d36-925e-413c-b952-42a16a857345](https://github.com/izumisenalover/izumisenalover/assets/129478709/6021bfdc-4c94-4b76-95aa-fec223c819b1)
