@@ -11,7 +11,7 @@
 
 <p align="center"mydarling wife @hifumiizanamilover ![d51znq1-df165caf-6b01-4c4f-9841-bb371578b1d5](https://github.com/izumisenalover/izumisenalover/assets/129478709/9f5b2a90-0dd7-4754-b0e0-a8a8d65839ef)
 
-<p align="center">i like bandori d4dj idv persona 3/4/5 homestuck(sorry) and more feel free to talk about any of that with me i dont bite i promise!!! !!!
+<p align="center">i like bandori d4dj idv persona 3/4/5 and more feel free to talk about any of that with me i dont bite i promise!!! !!!
 
 <p align="center">i hide very freely sorry if im sitting on someone.. i am completly okay with sitting with me/talking to me ^_^ BUT please understand i sit afk alot so if you really wanna tell me something please whisper ill get back to you asap !! my atabook might hurt some peoples eye be  careful its not like bright colors but its alot
 
